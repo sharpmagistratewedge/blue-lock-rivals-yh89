@@ -1,4 +1,4 @@
-
+premium Script for blue lock rivals is the best blue lock rivals Script, featuring custom skins and no cooldown. Safe and powerful for all your needs.
 
 
 
